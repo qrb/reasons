@@ -13,6 +13,3 @@ I used to be an average but incredibly passionate software developer, hence my k
 I might not be worth anything in your eyes, and I'm really sorry about that, I hope you'll be okay. I see myself as a strong person who is willing to stand up for honesty, integrity and kindness and to treat the world with compassion because I believe in humanity, our cultural and social evolution and that we have the power to create the most aspirational world and not just conform to a world of hatred, prejudice and abuse. Can you do it too?
 
 Xie Xie.
-
-<iframe src="https://leetagg.substack.com/embed" width="480" height="320" style="border:1px solid #EEE; background:white;" frameborder="0" scrolling="no"></iframe>
-
