@@ -2,7 +2,7 @@
 
 ### My personal reflections on the plight of Palestine. Free Palestine, free the world.
 
-![Max Cooper live av.jpg](../Media/Posts/Max Cooper live av.jpg)
+![Max Cooper live av.jpg](../Media/Posts/Max%20Cooper%20live%20av.jpg)
 ###### Max Cooper - Mesh Live Tour, https://www.tailored-communication.com/events/max-cooper-mesh-live-tour
 
 ## Word Sensitivity
