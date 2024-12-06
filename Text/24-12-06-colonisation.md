@@ -1,8 +1,8 @@
 # Upgrading The Colonial Squat
 
-![colonisation-960x720.jpg](../Media/Posts/colonisation-960x720.jpg)
+![Aboriginal_rock_art_on_the_Barnett_River,_Mount_Elizabeth_Station.jpg](../Media/Posts/Aboriginal_rock_art_on_the_Barnett_River%2C_Mount_Elizabeth_Station.jpg)
 
-###### Image from https://www.carrolup.info/colonisation/ - Aboriginal prisoners in neck chains at Wyndham, Northern Western Australia. State Library of Victoria.
+###### Pictographs known as Wandjina in the Wunnumurra Gorge, Barnett River, Kimberley, Western Australia - Graeme Churchard from Bristol (51.4414, -2.5242), UK - On the Barnett River, Mount Elizabeth Station
 
 Imagine a squatter comes along and violently strips you of your home, resources and land, forcing you to act in their servitude. You are treated like vermin for centuries, your life is enslaved, your cultural heritage is trashed, burnt up and discarded. You are forced to fight for your children's rights, perpetually, just to reach the bare minimum. You must struggle for equality, for equal say within a system that normalises your oppression and seeks to control the narrative of your life, past and present.
 
